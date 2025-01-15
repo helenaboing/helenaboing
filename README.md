@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @helenaboing
+- 👀 I’m interested in UX/UI Design and Digital Experiences
+- 🌱 I’m currently learning how to improve SEO for websites
+- 🚀 I’m looking to collaborate on startups looking for marketing and UX strategies
+- 📱 How to reach me @helenaboing
+- ⚡ Fun fact: I live on a boat and love the sea. 🌊
