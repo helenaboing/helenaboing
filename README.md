@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning **how to improve SEO for websites**  
 - 🚀 I’m looking to collaborate on **startups looking for marketing and UX strategies**  
 - 📱 How to reach me:  
-  - Portfolio: [helena-portfolio.com](https://www.helena-portfolio.com)  
+  - Portfolio: [helena-portfolio.com](https://www.helenaboing.com)  
   - LinkedIn: [linkedin.com/in/helenaboing](https://www.linkedin.com/in/helenaboing)  
 - ⚡ Fun fact: **I live on a boat and love the sea. 🌊**  
 
